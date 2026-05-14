@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare Sniper for meme coin sniper bot | private-RPC-nodes & new-token-detection, the #1 meme coin sniper bot. Includes private-RPC-nodes and
 
 
 
